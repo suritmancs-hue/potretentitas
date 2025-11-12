@@ -1,0 +1,2 @@
+# potretentitas
+Lomba DCC BPK
